@@ -1,1 +1,0 @@
-Ha ye karlo pehle!
